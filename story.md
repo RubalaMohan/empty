@@ -9,3 +9,5 @@ Some days later, while stalking his prey in the forest, the Lion was caught in t
 "You laughed when I said I would repay you," said the Mouse. "Now you see that even a Mouse can help a Lion."
 
 Moral-"A kindness is never wasted."
+
+A Lion lay asleep in the forest, his great head resting on his paws. A timid little Mouse came upon him unexpectedly, and in her fright and haste to get away, ran across the Lion's nose. Roused from his nap, the Lion laid his huge paw angrily on the tiny creature to kill her.
